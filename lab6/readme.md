@@ -1,1 +1,1 @@
-robione zadania 1-7
+zrobione zadania 1-7
